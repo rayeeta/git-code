@@ -26,3 +26,4 @@ Full–time
 
 Ray job STOPS
 
+JESUS IS LORD
